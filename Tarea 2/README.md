@@ -1,1 +1,1 @@
-ya está el ejercicio 1
+Fran: ya llegué hasta la parte de 5 mejores modelos
